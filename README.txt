@@ -26,14 +26,3 @@ Check the full list of talent acquisition specialist interview questions with sa
 Real-life HR Director interview questions
 The HR Director is the leader of the HR department, responsible for setting HR strategies and policies. They ensure legal compliance, manage HR teams, and collaborate with senior leadership to align HR practices with business goals.
 
-Check the following questions asked by real hiring managers with sample answers for each: 
-
-How would you foster a positive work environment?
-This question aims to gauge the candidate’s approach to creating a workplace where employees feel valued, motivated, and engaged.
-
-Sample answer:
-
-“Fostering a positive work environment is a continuous effort. I believe in open communication, recognizing and rewarding achievements, and providing growth opportunities. Regular feedback sessions, team-building activities, and ensuring a safe space for employees to voice concerns are also essential. 
-
-“Additionally, promoting work-life balance and ensuring that employees have the resources and support they need, both professionally and personally, contributes to a positive atmosphere.”
-
